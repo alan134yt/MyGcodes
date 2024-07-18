@@ -1,3 +1,0 @@
-Alan
-DESKTOP-A1KQJSO 
-Wednesday, July 17, 2024  2:36:00 PM
